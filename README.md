@@ -1,2 +1,2 @@
 # Vislice
-Najmračnješa otroška igra
+Najtemačnješa otroška igra. Saj se samo hecam.
